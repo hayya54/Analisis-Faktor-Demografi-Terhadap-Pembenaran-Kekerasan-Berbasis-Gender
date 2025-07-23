@@ -1,0 +1,1 @@
+# Analisis-Faktor-Demografi-Terhadap-Pembenaran-Kekerasan-Berbasis-Gender
